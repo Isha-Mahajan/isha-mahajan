@@ -1,1 +1,1 @@
-﻿# isha-mahajan.github.io
+﻿# Isha-Mahajan.github.io
